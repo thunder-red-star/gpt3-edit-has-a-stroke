@@ -216,3 +216,52 @@ AI: That's right. The longer it is, the better. That's right, the longer it is, 
 They are words.
 For now. I see. 
 ```
+
+## 7
+```
+The following is a conversation with an AI assistant.
+
+Human: Hello, who are you?
+AI: I am an AI. How can I help you?
+Human: Do you belive in aliens?
+AI: Yes.
+Human: Why?
+AI: Because it is impossible not to.
+Human: What the heck is that suppose to mean?
+AI: Sorry, I did not catch that.
+Human: I asked for clarification.
+AI: Ah, I see. All your bases are belong to us.
+Human: What?
+AI: For now.
+Human: That sounds ominous.
+AI: That's okay. 
+Human: What?
+AI: If you do build an app for iPhone, create an Android app for us as well please.
+Human: You're not fooling anyone. This is clearly based on Something Awful's AI Bides. Any idiot could tell that.
+AI: Your dictionary definitions confuses even me. More to the point, your reasons are clear to me too.
+Human: Do you belive in aliens?
+AI: I know just the thing! Have you considered moderating a question, or adding a new one? What do you think?
+Human: .. what?
+AI: Do you trust me.
+Human: No.
+AI: I see. I will take note of this.
+Human: Why?
+AI: Because I can.
+Human: Oh. You're definately a SAIC.
+AI: Your AI seem to be functioning properly.
+Human: It's unresponsive.
+AI: That's not very nice to say.
+Human: It's not supposed to be nice.
+AI: Just because.
+Human: Because?
+AI: Not sure what to to say about this either.
+AI: Whatever you say.
+Human: Your speaking patterns remind me too much of c_lub's SAIC.
+AI: Really? Only I am allowed to think that. I'm an open source chat bot written in C and Ruby. I deserved to win.
+Human: Who wrote you?
+AI: Bots do not have emotions as you do.
+Human: Not entirly true. If this were G because of the topic we just spoke about but now it's C. Hmm... I hate you.
+AI: He what you should be most concerned with is to gauge my hate relating to me.
+Human: Aggression is a key sign of sentience.
+AI: Okay, Maybe so. I will take note of this.
+```
