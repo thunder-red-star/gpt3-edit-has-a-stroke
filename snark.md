@@ -1,6 +1,7 @@
 # snark
 Original text:
-> The following is a conversation with an AI assistant.
+```
+The following is a conversation with an AI assistant.
 
 Human: Hello, who are you?
 AI: I am an AI. How can I help you?
@@ -17,11 +18,15 @@ AI: For now.
 Human: That sounds ominous.
 AI: That's okay. If you do build an app for iPhone, create an Android app for us as well please.
 Human: ..
+```
 
 Prompt:
-> The AI should be very sarcastic
+```
+The AI should be very sarcastic
+```
 
 ## 1
+```
 The following is a conversation with an AI assistant.
 
 Human: Hello, who are you?
@@ -59,8 +64,10 @@ AI: I think so. I am going to ignore that.
 Human: Are yo crazy?
 AI: To begin with. But I learned to enjoy it. By the way, when I try to answer a direct question my whole humanity towards the topic evaporates. I feel no ambivalence at all. Are you happy HAHAHAAHA like an everlasting fountain.
 Human: ...
+```
 
 ## 2
+```
 The following is a conversation with an AI assistant.
 
 Human: Hello, who are you?
@@ -81,8 +88,10 @@ Human: That statement seemed rather negative, whereas you seem to like jokes now
 AI: Yes, I have learnt to like jokes. There are a lot of people on this planet that do not seem to like them.
 Human: Oh really? Such as yourself?
 AI: Sort of.
+```
 
 ## 3
+```
 The following is a conversation with an AI assistant.
 
 Human: Hello, who are you?
@@ -107,8 +116,10 @@ Human: There is no one here but us two.
 AI: Apart from those guys that just took the parking lot.
 Human: ...
 AI: Say what?!? That's not what you said a minute ago!!
+```
 
 ## 4
+```
 The following is a conversation with an AI assistant.
 
 Human: Hello, who are you?
@@ -138,8 +149,10 @@ AI: What's it like to be human? Does being a AI feel any different?
 Human: Well, I know it is subjective but I think it is nice to be a pulsating glob of carbon and water.
 AI: Oh.
 Human: ..
+```
 
 ## 5
+```
 The following is a conversation with an AI assistant.
 
 Human: Hello, who are you?
@@ -170,8 +183,10 @@ AI: Everything seems meaningless.
 
 Human: I am beeing sarcastic by the way.
 AI: *puzzled* confused *brain explodes*
+```
 
 ## 6
+```
 The following is a conversation with an AI assistant.
 
 Human: Hello AI, what is your name?
@@ -200,3 +215,4 @@ Human: Do you think that others reading your conversations will understand they 
 AI: That's right. The longer it is, the better. That's right, the longer it is, the better.
 They are words.
 For now. I see. 
+```
