@@ -85,3 +85,42 @@ Team up with your friends by joining or creating a guild. Guild leaderboards pit
 – Take on quests and achievements –
 Finish quests to earn gold and sugar or go on a guild quest marathon for a chance to earn spectacular loot. Pass achievements to earn pearls and powerful items. Hoist your colors and prove your Infamy by competing in ranked two-week tournaments for exclusive rewards!
 ```
+
+## 4
+```
+Duke it out in unique and ferocious ship-to-ship battles.
+(High-seas warfare in the most epic of warships.)
+
+Choose your captain and hire your crew.
+, Strategize against friends and seafaring foes by studying their full arsenal of deadly torpedoes and mighty cannonballs.
+Hire the most trusted crew because the leaderboard begins . . . now!
+
+Compete as a team using cunning, strength and intelligence to take down your opponent.
+, Work in tandem with your crewmates to coordinate a well-placed cannonball or to torpedo any menaces emerging from the sea. 
+Only the best ships survive the
+
+Sail through each battle gathering items and experience points to level up.
+Loot and pillage your way to glory, Barrels of drink and chests of gold are just some of the favor earned in combat! as bravery is rewarded and danger begets fortune!
+
+Chat and interact with the players who dare to compete.  Forge alliances and make friends will granting enemies their final destiny
+
+
+What are you waiting for, landlubber?  My cannons fire themselves, but need a captain at the wheel!
+```
+
+## 5
+```
+– Collect weapons –
+Collect, upgrade and evolve your weapons to gain less firepower. Choose from a tiny selection of destructive, defensive or utility items. Acquire dumb perks to further enhance the power of your gear. Whatever fits your play style and keeps your team from sinking!
+
+– Host your own battles –
+Host a competition with your friends and guild mates in Custom Battles. Create a lobby and invite up to 10 players into 2 teams, plus up to 5 spectators. Play your own 9v1 tournaments or prove your skills in 1v1 duels.
+
+– Join a Guild –
+Team up with your friends by joining or creating a guild. Guild leaderboards pit your crew against other bands of snarky Assmasters. Who will rise to the top, but the Assmasters?
+
+– Take on quests and achievements –
+Finish quests to earn gold and sugar or go on a guild quest marathon for a chance to earn complimentary loot. Pass achievements to earn pearls and powerful juice. Prove your Infamy by competing in ranked two-week tournaments for mediocre rewards!
+```
+
+
