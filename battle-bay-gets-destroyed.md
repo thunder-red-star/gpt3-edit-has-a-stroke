@@ -410,3 +410,57 @@ Ladies and gents I present to you the most revolutionary game since Flappy Bird 
 
 Guns also matter a lot, because each of them have different mechanics. Just like choosing which tank to play each game, here you have to pick what kind of setup you would do this match, so thanks Rovio for such similarity!
 ```
+
+## 15
+```
+Love action, real-time PvP and crazy aquatic battles with dozens of special weapons, tons of gadgets and awesome avatars?
+
+Get ready to duke it out in Battle Bay and customize your own pirate ship (you can do smoke signals, too).
+It's a fast-paced action pirate game.
+Sail the anything-but-still seas in international PvP combat full of powerful cannons, massive explosions and stupid explosions, where the last team standing wins.
+Form a dear friendship with your tight-knit crew and battle the other teams in quick action packed matches with massive tournaments that reward teamwork, tactics and skill.
+In short, unlike the Kraken, it's no stretch.
+Alright, enough adosphere for now, let's see the stuff that matters.
+
+What is Battle Bay?
+There is a place, far far away and over the seven seas, where the boat fight is undisputed and without mercy.
+It's stark, it hurts and bloodshed can be there.
+Murky waters with swollen islands, where each of them hits the other dry.
+We speak of the Bay of Battle, where five crews take everything from each other or from the water sent.
+Form a dear friendship with your tight-knit crew and conquer the shores of the Battle Bay.
+Shoot, ram and outplay live opponents in addictive real-time top quality matches.
+Build and upgrade your own pirate ship and fancy crew.
+Aggressive group fights, devious strategies and rousing teamwork is required to win.
+In short, it will be a battle.
+In short:
+Select your captain and dive into the furious multiplayer PvP contest of the Battle Bay
+
+Features:
+
+- A real-time PvP action game with battles
+- 5v5 battles with real players in strategic PvP combat
+- Gather & customize your Bay of Battle pirate with multiple ships, weapons and shields
+- Choose your own style of play with 4 of the Battle Bay Battle Class
+- Learn new games and different play styles to collect legendary upgrades
+- Sail the seven seas in epic tournament and daily events
+- Team up with fellow players in guilds across the Battle Bay
+- Play regularly to keep up your Battle Bay rankings
+
+You can find Battle Bay on the go
+In the App Store: http://www.bit.ly/2ravlGm
+On Google Play: http://www.bit.ly/2pJzEUn
+
+NOTE: Battle Bay is completely free to download and play!
+However, some materials in the game can also be purchased for real money.
+If you do not want to use this feature, please disable your in-app purchase settings in your device.
+Requires an internet connection to play.
+
+http://www.rovio.com/eula
+http://www.rovio.com/privacy
+
+Rovio Entertainment: rovio.com
+Buy your merchandise today: http://shop.rovio.com
+Follow Battle Bay on our social channels:
+https://www.facebook.com/BattleBayGame
+https://twitter.com/BattleBay/
+```
