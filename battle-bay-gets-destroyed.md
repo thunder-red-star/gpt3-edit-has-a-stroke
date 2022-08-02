@@ -464,3 +464,47 @@ Follow Battle Bay on our social channels:
 https://www.facebook.com/BattleBayGame
 https://twitter.com/BattleBay/
 ```
+
+## 16
+```
+Battle Bay is a combat-like game developed by Rovio Entertainment, the company that brought you addictive little puzzle game Angry Birds.
+Contrary to Angry Birds, Battle Bay does not involve any birds, or pigs for that matter.
+Instead, it has ships and a lot of weapons.
+Since it is made by the same company that made Angry Birds, it is "free", but it really is not; why do you think this game has so many ads everywhere?
+Anyway, the whole point of the game [read : ways to waste your time] is to fight against other players around the world.
+I find that the matching algorithms did not done so well, but if you play 5v5, you could get a defenceless little boat that stays most of the time in the back of the team, and when I was but very few level, one of my teammates was 55 in level, so that one could not fight against you and I because we were so low-leveled.
+Why am I even wasting my time writing this?
+I guess if you do not have an mmo shooter, then a very slow, frustrating and 5v5 waterproof board game that the maker and whatever supports are not even playing and probably does not even have the game installed on their phone.
+Yeah, maybe that game is probably just for watching ads.
+*shrug*
+
+From the maker's website:
+CHOOSE YOUR SHIP
+Shooter has a big array of weapons, Speeder is fast and furious, Enforcer is agile and versatile, Defender is a floating tank, and Fixer can repair friendly ships. Level up your vessel for more hitpoints and power!
+COLLECT WEAPONS
+Collect, upgrade and evolve your weapons to gain more firepower. Choose from a huge selection of destructive, defensive and utility items. Add items like shields, speed boosts, mines and smoke bombs to even the odds. Whatever fits your playstyle and keeps your team from sinking!
+Both: positive things; balanced?
+Which one is better?
+Farmer- I know they will trick you into buying pearls!
+Follow the auto-balance, why do not you?
+Me- Wow, thanks.
+*Dead silence*
+Maybe Farmbot is still on his way out of this hell to Mongolia...
+Does your "Play over WIFI or 4G" mean that I would have to pay extra for data transmission if I do not have Wi-Fi?
+It would show us who to sink every time, no?
+Good: anybody can develop an AR game!
+Nothing means that you are not going to pay or anything?
+In my world, they would say that it would eventually be a premium currency, but it is not called that.
+Brrrr!!
+Sounds like a frozen country of penguins!
+Or could it be a war-torn country of penguins?
+In my universe, "Farmbot" has no rights to be a robot made to handle screwdrivers because it is man-made!
+What would you get if you took away the game mechanics and call it a freeware game?
+One thing, and one important thing in particular: a paid game without money.
+If you get 8000 HP plow, your main weapon deals 196-249 damage per second.
+And from the looks of it, there are even more of those useless ones, they did not even put those items into the wallpaper!
+I would not be surprised if one day, the makers behind the next "Pokemon" would be these trolls.
+Junny: that is a good idea, but it would not; the new system would just make a second tier of untradable ones.
+If you want your battles to count, then you need to play ladder mode.
+Battle bay by Rovio entertainment is not a good way to sell things: it is just a few words taken from ancient peoples; it draws people in to show them everything but the real thing and when that fails, whoever is still there, gets a strange sad feeling...
+```
