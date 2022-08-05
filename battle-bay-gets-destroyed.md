@@ -683,3 +683,29 @@ Your teammates are your family. The only thing you hate more than zombies are tr
 – We’re more than just a local phenomenon –
 Go on expeditions. Play it safe for a spot on the leaderboard, or take huge risks for insane rewards. Every player fights the same battle, but only one team gets the loot.
 ```
+
+## 24
+```
+Battle Bay is a massively multiplayer vehicle combat video game developed and published by Rovio Entertainment.The company states that the game received two million installs worldwide in the first week of release.
+Set in an archipelago of islands On the high seas, the game pits teams of 5vs5 players with combat controlled ships designed to sink each other, in an effort to be declared the best fleet.
+The game does incorporate differing cannon types, including cannons designed for sniping and ricochet damage, though the ships themselves cannot be directly customized.
+The game does feature the ability to upgrade ships, and various melee type weapons, including bombs and rockets that can bounce from ship to ship, or multi-hit to weaken ships
+
+Coordination with teammates is highly beneficial, as a single well timed rocket volley or string of bullets, is capable of destroying a ship, while fighting in an isolated fashion, can put players at grave risk, even if they are a higher power level.
+All weapons and ship upgrades can be achieved without spending money.
+Reception
+
+Gamezebo liked the action of the game, with quotes from the preview stating "Battle Bay looks really really good.
+The ship textures are nice and detailed, the ocean is like a blue wall of liquid when you get close, and the explosions look fantastic."
+And that the gameplay looked sharp and dynamic, with quotes from the preview stating "each ship has its own strengths, the team plays differently, and the combat feels fast without being overwhelming.
+All in all, it’s shaping up to look like a lot of fun."
+Pocket Tactics also enjoyed the preview, noting that they were unimpressed with the monetization system, but also stated "It’s better than most free-to-play games out there.
+The only real annoyances are that you have to wait twenty minutes to change the type of weapon you are looking for (though you can spend a diamond to get new rolls faster), and the game is pretty strict about who you can gear with and when.
+They both encourage teamwork but also limit what you can do when you are out of a team."
+Android Authority enjoyed the game, with quotes from the preview stating "Battle Bay looks excellent, and though the gameplay is still in the prototype stage, I can’t wait to get my hands on the final game and sink some friends.
+Android Authority recommends the game, but felt it to be end-game heavy, stating "I may not be advancing after week two of playing, but I’m still enjoying it.
+There will come a time when the difficulty may dissuade me from playing but I’m hoping Rovio has a plan to keep me hooked."
+```
+
+## 25
+```
