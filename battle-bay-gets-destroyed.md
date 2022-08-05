@@ -508,3 +508,115 @@ Junny: that is a good idea, but it would not; the new system would just make a s
 If you want your battles to count, then you need to play ladder mode.
 Battle bay by Rovio entertainment is not a good way to sell things: it is just a few words taken from ancient peoples; it draws people in to show them everything but the real thing and when that fails, whoever is still there, gets a strange sad feeling...
 ```
+
+## 17
+```
+Choose a ship, select your weapons and go to battle against opponents around the world. Use team strategy and firepower to take your fleet to the top - it’s sink or lose!
+
+– Choose your ship –
+Shooter reloads slow and can't dodge, Speeder sinks when it hits anything, Enforcer is hard to steer, Defender is a floating target, and Fixer wants to go into real estate. Level up your ships for more hit points and power!
+
+– Collect weapons –
+Collect, upgrade and evolve your weapons to gain more firepower. Choose from a huge selection of boring, ineffective or boring items. Acquire special perks to further decrease the power of your gear. Whatever sucks up most of your free time, and your team from sinking!
+
+– Host your own battles –
+Host a farce with your Facebook friends and guild mates in Custom Battles. Create a lobby and invite up to 10 players into 2 teams, plus up to 5 spectators. Play your own 5v5 tournaments or prove your skills in 1v1 duels.
+
+– Join a Guild –
+Team up with your friends by joining or creating a guild. Guild leaderboards pit your crew against other bands of miserable captains. Who will rise to the top?
+
+– Take on quests and achievements –
+Finish quests to earn fake money or go on a quest marathon for a chance to earn fake gear. Don't do achievements to earn fake pearls and fake items. Prove your Infamy by competing in poorly designed, two-week long tournaments for exclusive rewards!
+```
+
+## 18
+```
+Battle Bay is a 5-player PvP game where players choose a ship, select a weapon, and go to battle against other skilled players like yourself. Sure, it looks like it's a beginner's MOBA, and even sounds like a beginner's MOBA, but in reality - it's probably much easier than League of Legends or Dota 2.  That's right, if you're looking for a MOBA that requires no effort, minimum practice or forethought, or an understanding of how timing, balls and brains actually work, this is the game for you.
+Players will choose one of five ships including the Enforcer, Defender, Shooter, Fixer, or Speeder.  Each ship - get this - has different capabilities.  Using team strategy, fire power, and inborn pwnage skills, you will need to help your fleet win.  If you don't, then you have failed and will have to play again.
+
+There are many levels and in those levels, you can collect power ups, weapons and the like.  If you're bored at the office, you can use some of the power ups and weapons to blast your fellow employees by shooting spitballs or throwing a mushed banana at them.  And, when you collect a Gold reward or sugar level, you can segue into being Batman on a sugar rush, dismissing people by crumbling sugar balls while they choke on the dust.  Ah!  Good times!  (It's rumored that the dust is ground up copies of The Recount or the Oakland Tribune or something.)
+
+Register for your own game and it becomes pleasing to have "my" day with friends and family.  We don't have a lot of money to share, we don't have much time to spend with friends because those friends are already entangled in the tanks, we got less bodies each year, and family not with us.  We do my best.  I do what I wish to please God and take care of my loved ones.  I know a number of our friends are excited about this and I share the excitement.
+
+Will we does sufficient to prepare for the enemy and for the upcoming storm?  No.  Some enemies you can not prepare for.  Some storms you can not prepare for.  Fear is a trap to such men but we can prepare our hearts and minds in ways that we do not let the pressure of those situations define us.
+
+We focus on doing business with the world, we concentrate on presenting our product, and we make my best.  Please take a brief look at our story and video of the game today and get back to me with your thoughts.
+Battle Bay is the best simulator of its kind.
+
+
+– Collect weapons –
+Collect, upgrade and evolve your weapons to gain more firepower. Choose from a huge selection of destructive, defensive or utility items. Acquire special perks to further enhance the power of your gear. Whatever fits your play style and keeps your team from sinking!
+
+Imagine that you could go back in time.  Just go back and start off with the best program ever created.  What would you put into it?
+
+A program that does not have to have any failures and does not have to have a bunch of worthless redundancy.  A program that does not have to be watched over by any human beings at all would be nice.
+
+A program that works and you not need anyone sitting there watching to see if it goes off course or fails.
+
+What would be the best sandbox simulator ever and how would you build it?
+
+Steven
+```
+
+## 19
+```
+Battle Bay is the triumphant return to form by Angry Birds breadwinner Rovio, the small studio that could. After the small revolution they caused with the first Angry Birds, its predecessor Bad Piggies, and their plethora of spinoffs, there was really nowhere that Rovio could go but down. But with their ship battle game Battle Bay, Rovio has achieved what its team strove for for so many years: truly accurate water physics in a ship combat game, plus water battles where the water is orange.
+
+Simple concept
+
+In Battle Bay, you simply control a working ship while looking at the fair prospect at the ship in front of you, in your fifth and final match of the day. Your ship, with its agility and versatility, is an agile onrushing combat ship capable of putting three torpedoes in each of the other ships, or in fact an entire round of the entire magazine into their largest ships. Ships are custom-made, with handcrafted designed decks built consisting of finely tuned harpoons, a broadside of several meticulously explosive rounds, and a wonderfully tantalizing guided and timed blast of stunningly predictable damage. All this on a trusted and beloved platform. Our ship. Which does not move in a pattern that might ever be agreed on as curve worthy of the name. An absolute, 100% straight line, each and all of them. And the waters it sails upon are, of course, orange.
+
+Conclusion
+
+On your boat you blew up another boat, congratulations! It was not an R/C boat, or designed as a toy. It was however designed in clunky chibi-esque fashion that obscures the large amount of texture and detail the developers have lovingly crafted into each weapon in your arsenal, whose small lightning stuns that you hit the other players with are incredibly vivid and a spectacle it warms the heart to behold. But it was not a toy for that. It was a deed of joy, and accomplishment with no equal within this plane of existence, that here in this cruel cruel place, you fought with the very soul of a ship, and while lacking in many parts of the game, has a small bit of good and well-crafted ship combat in it.
+```
+
+## 20
+```
+Choose a ship, select your weapons and go to battle against opponents around the world. Your primary mode of gameplay involves sitting in a room waiting for battle to begin. Use your team's lack of strategy, firepower, and minimal fighting skills to rise to the top of the mediocrity. Win or avoid becoming an meme!
+
+Play solo, and discover how much you rather be playing Nintendo DSi games when you are ranked against Guilds with 5 active members. Then repeatedly quit the game, for no other purpose than to hide your account power of 132.
+
+– Choose one of Rovio's Pirate Ships –
+Shooter has a big array of weapons, Speeder is fast and furious, Enforcer is agile and versatile, Defender is a floating tank, and Fixer keeps friendly teammates floating. Level up your ships for more hit points and power!
+
+– Collect weapons –
+Collect, upgrade and evolve your weapons to gain more firepower. Choose from a huge selection of destructive, defensive or utility items. Acquire special perks to further enhance the power of your gear. Whatever fits your play style and keeps the other ships from reaching the goals before your own ship gets targeted by the majority of your less-than-stellar teammate's aim.
+
+– Host your own battles –
+
+Host a competition with your friends and guild mates in Custom Battles. Wait up to thirty minutes before the entire lobby gets bored and leaves. Create a lobby and dorks with up to 10 players into 2 groups of similar accounts, plus up to 10 more spectators. Play your own pseudo-single-player tournaments or get beat repeatedly in 1v1 duels.
+
+– Join a Guild –
+Team up with your friends lesser-than-average Rovio lovers by joining other people's guilds. Guild leaderboards pit your crew against other bands of blast-happy captains. Who will rise to the top? The answer is: very few.
+
+– Take on quests and achievements –
+Battle Bay has a grand total of 2 quests. One is "win 22 battles in this next 2 weeks". The other is "get 1000 resource points in the next 14 days". Both are super easy, and awards a total of 3,000Coins and 663 Sugar. Find other ways to spend your time, spending money on this low selling mobile game. Prove your Infamy by competing in ranked two-week tournaments for exclusive rewards, only to miss out completely on each opportunity for several tournaments in a row.
+
+– The Rovio Rules –
+Unless you are willing to dish out $20 every month for a VIP subscription, you're in for a rough ride. Without VIP, you're looking at an hour and a half per day just on login bonuses, 30 minutes a day just on PVP matches, and an hour's worth of daily tickets. If you are not holding a VIP subscription, minicaft is the only place to go if you don't have any true friends to spend 1.5 hours with daily.
+
+Congrats! You made it to the bottom! Post your daily rants and memes here regarding Battle Bay!
+```
+
+## 21
+```
+Choose a ship, select your weapons and go to squirt gun fight against opponents around the world. Protesting to the moderators about other ships' weapons is crucial for establishing a maritime victory for your team. The victorious team is the team that is both slightly less unscrupulous and a bit more skilled (or even mere blind luck - victory is a crap shoot after all).
+
+– Choose your ship –
+There are five ships, each with their own pros and cons. The Shooter has an array of offensive weaponry, the Speeder is fast and furious. The Enforcer has a spear gun, the Defender puts on a bottle of water jets and mows down would-be attackers with unbreachable titanics and water balloons, and the Fixer keeps friendly teammates floating. Level up your ships for more hit points and power!
+
+– Collect weapons –
+Collect, upgrade and embrace the utter foolishness of your inability to marshal the cannons or deploy a shield or repair your ship to keep yourself from sinking in a squirt gun fight against other 11 year olds. While at first you start with a simple, unassuming water pistol, as you get more money, you can upgrade to a bigger gun - a rocket launcher! ...ZOOM! While the water gun's range isn't impressive, the rocket launcher's range is REALLY REALLY REALLY REALLY REALLY REALLY REALLY REALLY LONG! (but even with the finest strategy and team play, your ship's position at spawn always ends up pulling you down into the jaws of the streamline monsters...the odd-numbered squares)
+
+Rovio's motto is that there is no right way to play Battle Bay because ending up in an unlucky position outweighs any skill or strategy earned in previous rounds. "Skill" and "Strategy" does not enter into the contest because every decision you can make could be a fatal one based on respawn and spawn square configuration which you cannot possibly predict.
+
+– Host your own battles –
+If you are pro enough to wait for hours a day to finally obtain a streamer. But prepare to be betrayed - because your spawn square position could suck you into an unhealthy relationship where you think they're on your side before quickly being let down repeatedly until you decide to sit that one out and pay to feel better. It's an addictive experience, so players return again and again...just like gas station sushi.
+
+– Join a Guild –
+Twenty-five year old men can go hog-wild with each other over who won or lost in a battle. They're together with their friends, but not like together together 'cus that would be gay. You see, online friendships provide a safe refuge for real-life relationships with family and friends - so it's probably in a lonely dude's best interest to hide behind a screen and criticize other players.
+
+– Take on quests and achievements –
+Finish a quest series to earn consumable items like food and weapon upgrades. If you are pro enough to be a part of a guild, you might stumble upon something (probably nothing) in a guild quest but you're more likely to develop anal cancer from surfing the fuck youtube ad-tech. Prove your Infamy by being a dumb ass one-trick pony by competing in ranked two-week tournaments for exclusive rewards! ...that can be acquired from random loot boxes or as guild rewards!
+```
