@@ -620,3 +620,66 @@ Twenty-five year old men can go hog-wild with each other over who won or lost in
 – Take on quests and achievements –
 Finish a quest series to earn consumable items like food and weapon upgrades. If you are pro enough to be a part of a guild, you might stumble upon something (probably nothing) in a guild quest but you're more likely to develop anal cancer from surfing the fuck youtube ad-tech. Prove your Infamy by being a dumb ass one-trick pony by competing in ranked two-week tournaments for exclusive rewards! ...that can be acquired from random loot boxes or as guild rewards!
 ```
+
+## 22
+```
+If you ever hit your head on the sidewalk so hard that all you can think about is "Wouldn't it be cool if we had Battleship Minus Familiarity with the Concepts Involved Plus Candy Land and Don't Forget You're Always Sucking on a Sucking Chest Wound," this game's for you!
+This is a 5v5 multiplayer game where you take control of a ship and blast another team out of the water.
+The game shows its priorities: even though it's named after ships, it really wants you to be more concerned with your weapons than the basic idea of steering that thing through the ocean into position to fire them.
+Yeah, yeah, the game just wants to get you out there and fighting.
+I hear you: the joystick is just a crutch.
+Hell, it doesn't even have a proper "fire" button.
+You sort of tap it twice: once to aim, once to fire.
+Yeah, OK, your weapons also sort of "autofire," but that just makes Pirate Bay: Install Disease first-person-shootier than it would otherwise be.
+And I salute its desire to get you out there and killing—it has matchmaking of its own, each matching complete with a loading screen with its own near-random phrases such as "Taking out the scum" and "Getting Warm-Served" (I have no idea what that means, but I think it's meant to make me a little scared) and "Getting warmed up" and "I need a boost right now" and "In your element."
+(The carousel of potential loading screen messages is near-endless, so it's not worth keeping the above non-exhaustive list necessarily, but you get the idea: Hey, you might be killing someone this time!
+It might be great!
+Better hope it's not, "Prep work begins...")
+
+You get some choice in mayhem: five types of ship, such as Shooter has a lame shell cannon and a "stonewall warp" emergency exit button more reminiscent of a low-grade Space Invaders game than any real version of a naval battle, although apparently it's come to this!
+Speeder as it sounds, which I suppose is interesting even if it also comes equipped with rockets and powerwave and heck, might as well say a "stoneshield" to protect itself.
+And a Forcecutter that apparently I want whatever that is, now.
+Enforcer throw bombs and a nuclear bomb.
+Lucky Defender can protect itself and friendly ships.
+And Disgruntled Zombie's Nightmare Fixer as it sounds, protect you and bring you back from the dead.
+
+Each ship comes with different weapons, but no real theme.
+And that's not just me talking about Enforcer having a nuke and taking potshots with a shotgun-like something or other at the same time.
+Just look at all of them: they each get two different types of rapid-fire device, at least one direct-fire projectile, which is largely uninteresting cannon-type weapons and don't really stand out one way or the other, and they each get at least one non-weapon.
+These are the thrilling and relentless destroyer and the more versatile stonewall and protect, and anything and everything in between like forceborb and stoneshield, and they're not particularly thrilling and they rarely seem to "help to turn the tide" as the app store's hype notes and... basically you probably shouldn't bother with them.
+Oh, wait, I'm talking about the characteristics and abilities of your ship's steering and movement capabilities?
+There are none.
+You're a ship.
+You float on the deep blueness of the illimitable sea and you hope to God that your projectiles don't just fly past your opponents who, let's face it, barely even look different from you, and you hope that the ridiculous effect cost of your warp out (especially if you happen to be in Enforcer and therefore probably have already used your nuke in a vain attempt to get out or have been actively trying to hoard it) makes all the difference and won't leave you to a miserable sinking because God damn all of your weapons are just boring honking, you never get close enough to stand a chance of maneuvering around a shield—enemy or ally—, and even then you're unlikely to ever want to actually plan, organize, strategize—and much less play as a team.
+I'm serious: a lot of the loading screen phrases are, essentially, exhortations to play more like the one-on-five versus you really are—football ads tend to pop up a lot—and the only reason they might want to be different from one another is to perform specific, different, "specialized" roles in boring and predictable formations, like turtle-ing up or bombing the crap away from midline or circling the map or whatever else.
+But that's not even enough to be fun, as there are no in-game chat or intercom for pirates or any variation on this age-old and well-understood and very enjoyable system.
+Which is a shame, because Pirate Bay: Wharf-Lucky-Day could very easily be a fun and goofy take on it, if the controls weren't a mess, if the maps weren't straight lines, if the weapons weren't either trash or not really applicable to any kind of team-based strategy.
+This game started with a great idea, executed it poorly, and is a couple milestones away from being a game funny enough to power through a lack of interest in even showing up.
+The matchmaking works, your weapons aren't interesting because you're always at range and it's never any fun to be in range unless you're into S.S. as in "Silent-Sustained-Superior Firepower."
+But that's no way to go through life, Ghost Pirate.
+Downloaded and pressed by Exploding Car Trans Am of Missouri Game Review, 2016
+
+Mediocre at best, Battle Bay is more of a pseudo-Naval Warfare simulator than a straight-up arcade game.
+The good news: It's as much fun to play as your plastic toy boats.
+The bad news: Battle Bay is free to play, so that's no way to live.
+
+Mediocrel First Impressions on Battle Bay Check out the games real site: http://www.thepiratebay.org/torrent/6203517/ ...
+```
+
+## 23
+```
+Water you waiting for?
+Grab your friends and aim your torpedoes, because it’s time to step up your game.
+Play Battle Bay like there’s no tomorrow, and show the competition you mean business.
+
+– This ain’t your grandma’s bingo –
+Play 5v5 real-time combat in this thrilling multiplayer game. Blasts, surprises, laughing in victory, weeping in defeat… and gloating as you collect booty.  Raise your game.
+– Choose your captain –
+Five classes plus tons of upgrades and items make each combatant truly original. So many toys to play with, so little time.
+– This should have been a bigger shelf –
+The seas are alive with foes. Collect and upgrade your arsenal of weapons. Explode enemies instead of water balloons.
+– Build a team you’d never leave behind –
+Your teammates are your family. The only thing you hate more than zombies are traitors. Prove your loyalty. Defend your friends from zombies. But fight first, ask questions later.
+– We’re more than just a local phenomenon –
+Go on expeditions. Play it safe for a spot on the leaderboard, or take huge risks for insane rewards. Every player fights the same battle, but only one team gets the loot.
+```
