@@ -774,7 +774,7 @@ out on Enders Game and Wandering iin the fourth
 grade for the sake of another essay 
 
 # 34
-```My time at Stuyvesant High School hasn’t been all that it’s hyped up to be. But it’s better than going to Bronx Science or Staten Island Tech.
+My time at Stuyvesant High School hasn’t been all that it’s hyped up to be. But it’s better than going to Bronx Science or Staten Island Tech.
 
 Having a disdain for mediocrity since elementary school and a lust for knowledge since middle school, I was always on the prowl for a place where I could learn and challenge myself, as defined by the standards of the day.
 
