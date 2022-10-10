@@ -458,3 +458,143 @@ So is it worth it going to school at a NYCDOE "Specialized High School"? Of cour
 </p>
 
 # 21
+```
+My time at Stuyvesant High School hasn’t been all that it’s hyped up to be. But it’s better than going to Bronx Science or Staten Island Tech.
+Personally, I had aspirations to be admitted to Stuy, but after having spent the past 2 years and counting in the hallways of 345 Chambers, the academic expectations and reality on the other side of the gate is overwhelming, to say the least.
+
+Like each school, Stuy is not perfect, but I consider myself lucky enough to be here, amongst a plethora of intelligent kids; I have found, however, that a student’s persona’s, while intelligent as a whole, short-minded as well; some people choose to lock themselves up in their rooms, debating esoteric subjects and playing video games until 4 in the morning, while others attend classes with the sole intention of sleeping through their days.
+I don’t think I lean too far either direction; having grown up with a solid schedule of sleeping at 10:00 and waking up naturally at 6:00 every morning since kindergarten, I have never been a sleepless individual like others who take 5 APs as a senior and 2 APs as a junior.
+Because of this, my friends warn me that I’m being “unintelligent” for not burning the midnight oil in constant study for my Regents, or taking harder courses than the APs I’m currently taking.
+While I’m aware of their insistence, I’m slowly learning to do things to my own targets and expectations – if something doesn’t have to be done, I’ll just not do it.
+Also, I find it useless to compare yourself to your friends and peers; I’ve never been the typical A+ student (I’m not one of the ones teachers are always praising), and I’m definitely not the one with multitude of problems at my fingertips – sometimes I find something fun in just being different.
+Thank you for reading.
+```
+
+# 22
+```
+My time at Stuyvesant High School hasn’t been all that it’s hyped up to be, 
+though that’s saying something considering my lofty expectations. As a 
+middle schooler, I had heard an endless stream of both positive and negative 
+stories and anecdotes concerning this school. Some of these stories were 
+from friends, others were decidedly less trustworthy. Many were vague 
+from uncertainty and over-excitement. Because of this, I entered my first 
+year of high school with a bang of enthusiasm, ready for a school that I had 
+managed to envision as both heaven and hell. However, what my thirteen 
+year-old self was certainly unprepared for was experiencing another feeling 
+quite unlike inspiration from this atmosphere and subsequently, a haunting 
+of high expectations and the alienation that follows. 
+
+In truth, this all started from this idea of personal alienation. Although 
+this is certainly not a school of personal enrichment, which it was for 
+me up until about my middle school years, I did find the loving group of 
+forgotten who, due to personal ties and beliefs, attempted to overlook the 
+sini nihilism that permeated Stuyvesant and instead concoct a warm, passionate 
+dialogue concerning everything (from love, to death, to the qualities of 
+Ringo Starr’s Beatles tenure). 
+```
+
+# 23
+```
+My time at Stuyvesant High School hasn’t been all that it’s hyped up to be. But it’s better than going to Bronx Science or Staten Island Tech.
+
+It is recognized for having the best educational opportunities in New York City.
+With over 4,000 students attending the high school, it receives the most sumbissions in the annual specialized high school exam of all the schools.
+However, the students aren't necessarily the best students attending the high school, they are students which have expected the very best out of themselves.
+These students are determined, hard working, and in the end, not necessarily very smart.
+Smart at doing well on exams and exams alone.
+
+Many students solely attend in order to get into their dream college.
+This is possible at Stuy because of their
+large academic departments and great alumni connections.
+
+When attending Stuy, or any specialized high school, the students are expected to
+have very few friend, and have the highest test scores.
+Failure is not an option, because in the end, your success is what is best for yourself and your family. This idea of communal thinking and working as a commune towards the goverment and towards our society is unusual for a school in a location of <redacted> City. Our largest
+destructions are due to the large multicultural demographics in New York.
+Because of this, Stuy, unfortunately, is a very get-your-ba don't-do-fun-activities kind of high school.
+
+I was admitted across the boroughs to all specialized high school. However, I only applied to Stuy.
+This elevated-task of only getting into specialized high schools was very hard. I worked very hard on getting in.
+This included sitting through 45 minute tutoring lessons with Ivy league high school students.
+
+When I came to Stuy, I was invited to the comunity with open arms. The administration has made students feel like they are wanted unlike any before I have known of. This is the one reason why attending here is so favorable. However, I feel that even after my junior year at Stuy, I am not considered "worthy" of being a student. This is because I am not active in the community, as I don't want to be. The community isolates those who want to self-isolate. I do not want to be a part of it.
+
+I use this to my advantage, however. I don't make friends easily. Well, making friends has never been easy. But I never truly felt at home before. I have now. I have found many people like myself, who just want to go through high school and succeed. I know that many people feel welcome to; contribute to the community, but take the resources away by attending. I, however, am that way around. I take the resources and contribute very little to the community. And I am completely fine with that. Whether or not the administration is pleased with that.
+
+I've endured many love-triangle, gay-rejection and homosexual-act love stories. This is quite usual for a gay man. These relationships were very harsh and difficult to get into, as these people were young and didn't know how to interact with people who were gay.
+```
+
+# 24
+```
+"Stuyvesant" – a word that makes every eighth grader in New York squirm in their classroom seats. 
+
+I remember that as an eighth grader, leaving the Bronx and going to Regis High School for high school exams terrified me. Going to Stuyvesant back 
+then seemed impossible.
+
+But I've grown to understand why that is.
+
+Having the reputation for being one of the most prestigious pubic schools in the world comes with a cost – a high one. Let's look at Stuyvesant's excellent science programs for a second. Students are given not one, not two – but four science periods a day. Why? That's all Stuyvesant cares about – a 95+ average, in every subject. 
+
+Stuyvesant cares so much about these grades, they have to teach 2 separate classes to learn physics. It's not because its that difficult: it's way too easy. These classes are taught in such a way that its boring and meaningless, yet the school seems to believe that this is how students learn. Everyone laughs at me when I say this, but it's the most boring thing I've ever had to do. I was literally asked to stare at my computer for 30 minutes in a topic, pretending like I'm learning.
+
+The absurdity of everything at Stuyvesant doesn't stop there though. For some reason, Stuyvesant expects their kids to be, well, miserable. You see all around campus kids stressing and going through this whirlwind of emotions. All this pain, just because they want to perfect their ACT score, or to compete in another debate session. 
+
+Going through all this pain, while I can turn left and see the One World Trade Center – to know that life outside these school walls isn't all that useless. There's opportunities everywhere – my next scholarship, or the guy I'd fall in love with, or the next country where I'd study abroad – and here I am, within a four-block radius, self-induced by the school that I either love and hate.
+```
+
+# 25
+```
+When I entered the eighth grade, my older brother, was jealous of me. For one thing, I was shorter than he was and also, (and more importantly) I was about to enter a different, MUCH more prestigious High School. At the time, I knew where I was going to go, I had heard nothing but praise from family and friends about the astonishingly academically inclined High School I was planning on attending. This school promised that an easy ride, to College, Corpoardate America, and global success would be just but a road straight out of it’s wide double doors. And yet, upon arriving there, I saw–absolutely nothing. 
+
+
+By the end of October, entering the High School, I was feeling quite disillusioned. Every one of the teachers were unwelcoming and intimidating, My worries began to grow. This was nothing like what family and friends had portrayed it as. Everyone I had talked to who was from the school displayed Stuyvesant as some kind of utopia, perfect in every way–except there is one catch–You had to meet all of their (insanely difficult) academic standards.
+
+
+This idealization of Stuyvesant is interesting to me, because after a great deal of time there, no one who is or has been a student at that school is the happiest person I have ever met, my peers are usually some of the saddest. Stuy, is a stress fest all around, while the people are incredibly, intelligent and talented, their existence is forever a state of panic–uncertain as to what roads lie ahead. 
+
+
+For every student at Stuy, this is not a tale, as commonplace as it may be, it is interesting to me, how parallel the experiences of the various students at the school are. And at the same time, how greatly varied the successes and stories within the school really are.
+```
+
+# 26
+```
+Seeing people readied to go off to college was soul‐crushing at times.
+Remembering back on the freshman picnic and acceptance day when the first graders were screaming “I MADE IT! I’M GOING TO STUY!” made my heart sink a little.
+When I was waiting to hear whether or not I’d gotten in, the thought that I could be one of those kids one day pushing aside the common objective of doing well on the SHSAT and focusing on having more GPA‐based extracurriculars and a respectable number of ECs made my blood boil.
+However, even though I constantly have to complain about Stuyvesant and complain I surely do, I know I couldn’t go to a high school with any other girls.
+I can’t imagine having to hear my friends complaining about clubs such as the cool kids do.
+Going to Christmas Formal with a random guy I didn’t even know, trysting with him until the sun rose at 3 am in the lobby of that restaurant whose name I refuse to acknowledge, almost letting tears drip down my face as I hugged Mombo, falling for multiple sets of those grey eyes that said “You, Haley, yes you, how do you feel about sushi?” before throwing caution to the wind and moving on to the next crush.
+```
+
+# 27
+```
+My time at Stuyvesant High School hasn’t been all that it’s hyped up to be. But it’s better than going to Bronx Science or Staten Island Tech.
+Some people think Stuyvesant is a place of opportunity, a hub of the future, the breeding ground for a greater sense of understanding in both the world and self.
+They tell you that graduating from such a school is an accomplishment, and that the troubles your time there will pose on your psyche shall be worth the wondrous things that you shall achieve.
+Is this true? I’d assume so, were it not that this high school purports a mask of hypocrisy like nothing else.
+It markets its wide range of clubs, that seek to promote nerdiness and uniqueness in its students, while at the same time forces them to work in rigorous classes and participate in hectic extracurriculars, eroding any sense of autonomy students have and burning them dangerously close to their fears of an impending nervous breakdown. 
+The greatest deceits of them are the dire words of guidance counselors, who make you believe that you have at your disposal a solution to all your worries, a chance to meet your dreams and see the goals which you have worked to pursue for your entirety flared into fruition in a single breath.
+You begin to believe them, and begin to fear their great wisdom. Then, your results are in. You learn that you have scored worse on the SAT, or received lower grades than you were hoping. You told your parents that you applied to this certain college, and what will they think when they realize you won’t get accepted?
+And how can you live with the shame of this? Of becoming yet another statistic of Stuyvesant, one of the many failures of this school?
+One day, you would like to fantasize, the hallowed halls of Stuyvesant will roar with praise for you. Yet, at the moment, all present grounds suggest that you were better off not attending in the first place.
+```
+
+# 28
+```
+My time at Stuyvesant High School hasn’t been all that it’s hyped up to be. But it’s better than going to Bronx Science or Staten Island Tech.
+The thought of coming, joining the likes of all of the fastest, most math and science oriented minds in the country, joining the average SAT scores of 2060, the SAT scores that just this March had reached the 37th percentile among the nation's SAT scores.
+I had my hopes set high, having always been better than acceptable at the fast-paced math-focused lifestyle.
+
+And yet, I had felt so much disappointment, having planned my own trajectory so fast with a high school which had at least statistical superiority over my two other fall-back choices, when things had gone differently from how I wished them to.
+It may sound pretty agonizing and pathetic, but I'm a pretty emotional kid that grows pretty disappointed with the things that make him disappointed.
+I did wish, with so much gusto, to be the top percentile.
+But I guess working for the better faculty and getting a nice education just wouldn't happen this high school career.
+
+I don't know, I'm definitely disappointed, but things aren't the way they were back in Elementary School and Junior High, when I was at the top notch of everything math and some science.
+It took more than fitting like Poe's raven into a cuckcoo clock, as though I belonged in Middle School as soon as I was queued up to join in but my age held me back.
+
+I don't know.
+There isn't much strategy to making the best of a path that I definitely did not choose, but didn't leave according to chance either.
+That isn't fair.
+It spawns hostile and embittered people who wouldn't say that life isn't worth living, but say that living with the choices that others and life itself made for you is an outrage on yourself and all of humanity.
+```
