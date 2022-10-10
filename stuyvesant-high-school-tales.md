@@ -29,3 +29,15 @@ around and walked away in a huff.
 ```
 
 # 2
+```
+My time at Stuyvesant High School hasn’t been all that it’s hyped up to be. But it’s better than going to Bronx Science or Staten Island Tech.
+
+I remember staring at the school newspaper “The Spectator” as a 8th Grader in middle school
+and admiring the bright lights of the city that were featured outside the classrooms on certain days.
+I thought it was amazing how students could go through rigorous
+courses while still finding a way to write articles and put together
+high level media.
+Little did I know that regular students also suffered through the
+stress of the school just as much as I did; it was just that they found
+a way to relieve it in a more productive manner.
+```
